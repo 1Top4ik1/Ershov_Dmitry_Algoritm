@@ -1,4 +1,4 @@
-https://drive.google.com/drive/u/0/mobile/my-drive?usp=docs_web&pli=1
+https://drive.google.com/drive/folders/1-36iM3GuHLpDmZgExuIGxyN9Bpgf8NJs
 
  команда:Хошимов Мехрзод, Ершов Дмитрий -глава, Крапивко Алина(определимся позднее) ... .
  
